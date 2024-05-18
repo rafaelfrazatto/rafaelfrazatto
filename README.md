@@ -8,7 +8,7 @@ Estou gostando desa nova jonada, toda ajuda é sempre válida então caso queira
 
 A lista é uma bagunça mas vamos desde o princípio.</br>
 Já trabalhei como ajudante em uma fabrica de plásticos, ajudante de eletricísta, auxiliar administrativo, monitor/professor de natação, cozinheiro, streamer, flipador de hamburguer, supervisor do censo/ibge, produtor de conteúdo.</br>
-Isso tudo pra mostrar que sou capaz de me adaptar, interagir com pessoas, e levanto que meu posto forte é a comunicação.
+Isso tudo pra mostrar que sou capaz de me adaptar e interagir com pessoas, levanto que meu ponto forte é a comunicação.
 
 ##
 
