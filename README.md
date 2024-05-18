@@ -12,7 +12,7 @@ Isso tudo pra mostrar que sou capaz de me adaptar, interagir com pessoas, e leva
 
 ##
 
-📚 Estou atualmente aprendendo sobre Logica da Programação.
+📚 Estou atualmente aprendendo sobre Lógica da Programação.
 <!--
 **bolazildo/bolazildo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
