@@ -34,7 +34,7 @@ Isso tudo pra mostrar que sou capaz de me adaptar, interagir com pessoas e resol
 
 ##
 
-### 🔎 Atualmente estou estudando Java e JavaScript.
+### 🔎 Atualmente estou estudando Java, JavaScript e MySQL.
 <!--
 **bolazildo/bolazildo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
